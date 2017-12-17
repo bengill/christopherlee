@@ -1,5 +1,3 @@
-# Christopher Lee
-
 I don't take credit for this:
 
 Christoper Lee's life could constitute dozens of independent TIL posts, he led a truly remarkable life. I'll just copy and paste some facts about him you'll find after a quick google search.
